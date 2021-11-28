@@ -11,6 +11,6 @@
 - Think and Grow Rich, Napoleon Hill.
 - The tables of light, Daniel (*Thoth*)
 - Rich dad, poor Dad by Robert Kiyodaki.
-- Millionaire Mindset by Dean G.
+- Millionaire Success Habits by Dean G.
 - Meditations by Marcus A.
 
