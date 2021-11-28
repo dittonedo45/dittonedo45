@@ -5,4 +5,12 @@
 3. A Nerd, but not Socially awkward.
 4. Roman philosophy devotee.
 
-![Me At School (Zimbabwe Friendship High School)](./me.jpg)
+## My Best books of all times.
+
+
+- Think and Grow Rich, Napoleon Hill.
+- The tables of light, Daniel (*Thoth*)
+- Rich dad, poor Dad by Robert Kiyodaki.
+- Millionaire Mindset by Dean G.
+- Meditations by Marcus A.
+
